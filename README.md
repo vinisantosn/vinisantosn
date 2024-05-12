@@ -13,7 +13,7 @@ I am a student of Computer Engineering at the Federal University of Maranhão - 
 
 
 
-I really like practicing physical activities, one of my favorites is capoeira. Welcome and take a look at my portfolio.
+Welcome and take a look at my portfolio.
 
 ### How to reach me
 - [Website](link_to_your_website_or_blog)  🚧👷
